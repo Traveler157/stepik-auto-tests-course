@@ -5,4 +5,4 @@ Hausaufgabe stepik
 
 
 
-qweeeeeeeeeeeeeeeeerttttttttttttttttttyuuuuuuuuuuuuu_____________
+@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
